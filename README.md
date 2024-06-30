@@ -14,4 +14,4 @@ I'm just a girl who loves learning new languages, painting, and—surprise—cod
 
 ## 📚 I’m currently learning
 
-So many stuff! [Spanish](https://www.duolingo.com/profile/parnianrhm)
+So many stuff! javaScript, Network and Security, [German](https://www.duolingo.com/profile/parnianrhm), [Spanish](https://www.duolingo.com/profile/parnianrhm)
