@@ -1,7 +1,5 @@
 ## Hi there 👋, I'm Parnian
 
-I'm mostly active on my Interpals account: (https://www.interpals.net/prniannrhm)
-
 ## 💅 About me
 
 I'm just a girl who loves painting, learning new languages, and—surprise—coding too!
