@@ -12,4 +12,4 @@ I'm just a girl who loves painting, learning new languages, and—surprise—cod
 
 ## 📚 I’m currently learning
 
-So many stuff! javaScript, React, SQL, Network and Security, [German](https://www.duolingo.com/profile/parnianrhm), [Spanish](https://www.duolingo.com/profile/parnianrhm)
+So many stuff! javaScript, React, SQL, Network and Security, [German](https://www.duolingo.com/profile/parnianrhm), [Spanish](https://www.duolingo.com/profile/parnianrhm), Fashion 
